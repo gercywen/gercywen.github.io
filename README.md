@@ -1,1 +1,1 @@
-# gercywen.github.io
+# gercy.lofter.com
